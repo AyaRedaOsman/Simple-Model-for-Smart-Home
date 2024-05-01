@@ -14,3 +14,7 @@
 
 
 
+
+
+https://github.com/AyaRedaOsman/Simple-Model-for-Smart-Home/assets/102327986/296f72ad-08e2-422d-b4ca-11b3891715e6
+
